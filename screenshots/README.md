@@ -1,0 +1,1 @@
+Screenshots of CodeQuest X project
